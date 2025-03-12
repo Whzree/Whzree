@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Whzree
-- 👀 I’m interested in playing games such as re4
+- 👀 I’m interested in playing games such as Dark Souls
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
